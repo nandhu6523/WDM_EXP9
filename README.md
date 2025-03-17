@@ -27,4 +27,12 @@ for this purpose.
 
 ### Output:
 
+![322206455-673503bf-1409-4da1-8a77-a630d19d625e](https://github.com/user-attachments/assets/a45e8c9d-b9b0-4ff6-92c7-0bfc17fc8289)
+
+
+![322206451-8c41d681-69b6-47ec-b7f8-25ca7839e2b3](https://github.com/user-attachments/assets/69330ef4-c710-4e57-aba5-ffb05e7563a8)
+
+
+![322206454-73c9bbe2-1bfe-417f-93c3-d2570cef7d7e](https://github.com/user-attachments/assets/fdad123b-ea78-417f-8b4e-737025382944)
+
 ### Result:
